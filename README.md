@@ -54,7 +54,7 @@ We ❤️ collaboration! Here's how you can join the fun:
 
 <div align="center">
 
-### 🎮 Ready Player One? 🎮
+### 🎮 Game On! 🎮
 
 *Let's build the future of digital arcade experiences together!* 🚀
 
